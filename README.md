@@ -2,4 +2,4 @@
 
 Private belum release, tampilannya dapat lihat dibawah ini:
 
-![caption](https://s2.gifyu.com/images/dotav21.gif)
+![caption](https://im.ezgif.com/tmp/ezgif-1-ce6e15ce46d7.gif)
